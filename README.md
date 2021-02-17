@@ -1,0 +1,1 @@
+# Veri-Bilimi-Makine-Ogrenimi-icin-Temel-Niteliginde-Bir-Baslang-c-Egitimi
